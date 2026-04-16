@@ -1,4 +1,4 @@
-
+adopt me Script secure private server access auto-upgrade offers the most advanced adopt me Script, with private server access and auto-upgrade.
 
 
 ---
